@@ -1,2 +1,2 @@
-# ssss
+# Ne bakıyon lağ
 Glitch İçin
