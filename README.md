@@ -1,0 +1,2 @@
+# ssss
+Glitch İçin
